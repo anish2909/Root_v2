@@ -15,3 +15,4 @@ DISCORD SERVER LINK - https://dsc.gg/hackzop
 YOUTUBE LINK - https://www.youtube.com/c/FreeDelaHoyaOp
 
 # SCREENSHOT
+Root_v2.PNG
