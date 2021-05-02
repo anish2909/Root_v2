@@ -9,10 +9,10 @@ THEN RUN ROOT V2.EXE , ENTER BOT'S TOKEN AGAIN , SERVER ID AGAIN AND ENJOY THE N
 CODED BY - ° NotYourFree†#0773 & ° NotYourAiden♡#0188
 
 # DISCORD
-DISCORD SERVER LINK - https://dsc.gg/hackzop
+[DISCORD SERVER](https://dsc.gg/hackzop)
 
 # YOUTUBE
-YOUTUBE LINK - https://www.youtube.com/c/FreeDelaHoyaOp
+[YOUTUBE](https://www.youtube.com/c/FreeDelaHoyaOp)
 
 # SCREENSHOT
-https://github.com/FreeDelaHoyaOp/Root_v2/blob/main/Root_v2.PNG
+[Click To See](https://media.discordapp.net/attachments/837255894713499658/838339323333705728/Root_v2.PNG)
