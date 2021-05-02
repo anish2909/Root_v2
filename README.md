@@ -15,4 +15,4 @@
 [YOUTUBE](https://www.youtube.com/c/FreeDelaHoyaOp)
 
 # SCREENSHOT
-[Click To See](https://media.discordapp.net/attachments/837255894713499658/838339323333705728/Root_v2.PNG)
+[Click to See](https://media.discordapp.net/attachments/837255894713499658/838339323333705728/Root_v2.PNG)
